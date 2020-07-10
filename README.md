@@ -3,5 +3,5 @@ Hi there, I'm Tyler (he/him) — currently a student at the University of Alaska
 
 ## Get in touch
  :floppy_disk: Discord: Jigglebox#8945 \
- :briefcase: Email: tyler@tylercchase.com \
+ :briefcase: Email: tylercchase@gmail.com \
  :hammer: My site: (not yet available)
